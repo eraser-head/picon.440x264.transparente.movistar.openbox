@@ -1,4 +1,4 @@
-Picones realizados por team Boxtvmania para imagen OpenBox www.boxtvmania.com para la plataforma Movistar+ en satelite 19.2E
+Picones realizados por team Boxtvmania para imagen OpenBox www.boxtvmania.com para la plataforma Movistar+ en satelite 19.2E, version transparente y logo tal cual es la mosca tv en retransmision del canal.
 
 Los picones la mayoria estan realizados desde 0 o masterizados sobre logos originales en alta calidad.
 
